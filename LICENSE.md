@@ -1,4 +1,4 @@
-
+Enhance your Bitdefender VPN experience with exclusive Bitdefender VPN Service | kill-switch + auto-connect, the #1 service. Includes kill-switch and auto-connect for a safer and
 
 
 
